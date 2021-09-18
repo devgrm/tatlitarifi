@@ -1,0 +1,2 @@
+# tatlitarifi
+patikatatlitarifi
